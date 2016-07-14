@@ -1,2 +1,2 @@
-changes.txt
-introduction.txt
+changes.md
+introduction.md
