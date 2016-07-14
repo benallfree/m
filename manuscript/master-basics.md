@@ -1,3 +1,41 @@
+2 -# Mastering the Basics
+# You Are a Master
+
+Yours is to conquer the manifested. The physical world -- with help from your slaves.
+
+Fear nothing. Learn from other masters. Become a master teacher. Generate abundance and provide protection to your slaves. To accept her surrender of the manifested, her flesh, that she may blossom and connect fully with the other realm and bring forth its virtues to you. For this exchange, she will bring the other realm to you and bathe you in beauty.
+
+Masters love to guide, teach, and build. slaves are the finest of clay to be moulded to the Master's purpose. This simple exchange of masculine and feminine energy is the ultimate goal of Querae. In a perfect Queraen world, you and your slave could ascend to 100% masculine Master and a 100% feminine slave -- pure energy of each type, mixed together to create insane, explosive, passionate love. Whether you can reach this nirvana of perfection in our default world is beside the point; it is the goal for which we all strive, Master and slave alike.
+
+Your role is to bring your slave, and therefore you, as close to ascendence as possible without visiting upon them permanent physical, emotional, or mental harm. You must be brave enough to oppose your slave's protests and fear-obstacles if you want to deliver the bliss you have promised her. In the other book, *s*, I am telling your slave the very same thing; that her Master *must* push her beyond comfort, through pain and fear, to reach the bliss. She knows this and expects nothing less from you.
+
+# Masters Don't Row
+
+> I like to think that Master and I are in a boat together. On most days, I row and Master steers. He decides what is to be done, or where we will go, and I provide him the power to get us there. Master chooses the route, he makes sure the way is clear, and I tend to it. That relationship is the one that works best, the one where I am happiest too. I don't have to worry about whether the direction is right or wrong, I just happily row.
+But every once in a while, I start thinking. I get clever. I get *smart*. I say, "Master, this is working pretty well. Why don't we switch for a while? How about you row and I'll steer?" And so I stop rowing. The boat stalls and settles adrift, aimlessly. "Master," I exclaim, "you have to row now! We are adrift!" And Master answers gently, "Master doesn't row."
+So you see, when I get a mind to think how things should be, or where we should be going, what we should be doing, how I should be treated, or anything else, we just go nowhere because Master doesn't row. My ideas do have power and value, but only through Master when he steers and I row.    
+ *-slave penny*
+ 
+ The above is a meaningful and real story. It contains a lot of wisdom. As Master, your role is to choose the path and clear obstacles from it. Your slave will test her boundaries both intentionally and untentionally. She may at times complain that the path is not clear, when in fact it's just that the path is not easy. Your slave may, at times, become critical of the path you have chosen or what you have commanded her to do.
+ 
+First, it would be helpful to draw a clear line between steering and rowing. Steering is deciding. Steering is avoiding obstacles and ensuring a successful journey. Steering requires faith; of a higher power, of self, of certain and eventual success. Rowing provides the motion. Rowing is action, implementation, and calls for a different kind of faith; a faith in the captain. The slave's faith begins and ends with you, her Master. If she begins to question your decisions, even innocently, she is sewing the seeds for an eventual loss in faith. You *must* prevent this at all costs.
+ 
+At times when your slave is testing you, it is important to wait her out and administer discipline. Nothing proceeds or moves forward until she has resumed the role - the one she really wants anyway.
+
+> ## If you row, you both lose.
+
+One of the most destructive and energy-neutralizing choices you can make is to meet in the middle and compromise with your slave. To trade away your sexual and energetic polarity in the interests of fair-mindedness and compromise and progress.
+ 
+A Master is reasonable and fair, but there is a greater principle at work than "reasonable" and "fair". Too many relationships and too much love has been lost to fairness, reasonableness, and equality. Put another way: do you want a relationship full of crazy-making sexual energy, zeal, and passion - sometimes explosively so - or would you rather live out your long years with a very reasonable platonic friend? Those are your choices.
+
+> ## Friends row together; Masters steer.
+
+If the choice is between courteous correctness and energetic polarity, choose to protect the energetic polarity and let fairness and reasonableness be the first to fall in defense of passion. When your slave begins to bargain, plead, complain, *bitch*, moan, whale, suggest, hint, plant seeds, manipulate, mumble, grumble, cajole, butter up, freeze out, or anything else less than a happy and willing *Yes, Master*, issue strict punishment (more about that later), even if she has a great point. Great points will soon yield to good points, and good points will soon yield to mediocre points, eventually resulting in the neutralization of your energetic polarity. There is a time and place for your slave to make humble suggestions that would please her Master. Mid-command is not the time.
+
+So again, remember this...
+
+> ## If you row, you both lose.
+
 # Defending Your Castle
 
 The truth is, Masters make mistakes. The hallmark of a great Master is not perfection, but how he handles his imperfections. What he does with the mistakes he makes. This is a great way to measure a Master.
@@ -58,3 +96,42 @@ It's worth noting, too, that testing you through disobedience is a dangerous gam
 Make no mistake; the slaves will ultimately overcome the Masters. The castle walls will crumble, for everything is dust in the end. Your objective is to stay the erosion of such habits long enough that you and your slave die from old age before there is so much as a crack in the castle walls.
 
 The honor and reverence of the Master/slave relationship is shared by both. It is as much your duty as it is your slave's to defend the relationship against all threats, including the biggest threat of all: your slave's willful mind.
+
+# Dissolving Boundaries
+
+If you spend much time styding philosophies of power exchange, it won't take long to stumble across the term *boundaries*. Further study will reveal a division between *soft* boundaries and *hard* boundaries -- that is, boundaries which can reasonably be changed with time (soft), and those which are unlikely to ever change (hard).
+
+A core principle of Queare is this:
+
+> ## Great Masters dissolve all boundaries
+
+Another relevant core principle:
+
+> ## Do no permanent physical, emotional, or mental harm to your slave
+
+A third princple that applies in this section:
+
+> ## Masters clear the path; slaves tend the path
+
+Taken together, most boundaries become soft from the perspective of the Master. Permanent bodily injury and lasting emotional trauma aside, your job is to work with your slave to disslove whatever boundaries you face. That is part of clearing the path.
+
+Which boundaries must be dissolved is left as an exercise for you to decide based on your specific desires in this world. A boundary that is blocking a slave from something you never plan to do is not a threat. All other boundaries must be dissolved.
+
+In my experience, slaves want to be freed from their boundaries. Fear binds them so tightly though, that it can not be admitted but in the softest whispers in the darkest of night. Most slaves will, in some form, admit that they wish for *total* power exchange and *total* domination, instead of a lesser version where they have a safety button they can press to stop the ride. There is, quite simply, a level of surrender and bliss that is unattainable while the slave feels that any part of her is still being held back in reserve; that she is not fully committed to surrendering this moment. That feeling is to a slave an itch that she can't scratch. A deep and wounding restlessness that eats away from within her most secret core. You must vanquish that willful core, or she cannot be fully released into ascendance and will ultimately lose respect for you, that you could not *tame* her.
+
+Furter, most boundaries are born of fear. Fear, as we know, is *False Expectations Appearing Real*. Therefore, the essence of dissolving aboundary is to remove the fear surrounding it. Fear can manifest as embarrasment, worry of physical harm, a broken heart, loss of income, or simply greater dependence on her Master than she is ready to surrender.
+
+Common fears of slaves include: fear of certain sexual acts, particularly those that leave them incapacitated with their very lives in your hands, such as breath play; fear of losing love (jealousy of other slaves); fear of losing polarity.
+
+The last fear - loss of polarity - could be said to be the original fear. The thing the slave fears more than anything else is that she will come to hate her Master or take her will back into her own hands. This fear, I have found, has little to do with any specific command or desire held by the Master. The fear is more general, that the Master will conduct himself or lead her in a way that leaves her feeling disconnected, unpolarized, or without purpose. By practicing the art of commanding from love, a Master can dissolve most fears before they begin.
+
+Sometimes, though, the only way to clear a boundary is to push through the fear. You will need to decide when it is appropriate to push through a fear vs. working at it more gently. In my experience only, I have found that discussing fears tends to make them bigger. I suggest making your slave write her fears down and give submit them to you. This neuters the fears of their power and allows the slave to relax, knowing that she has submitted her fears to you and no longer needs to tend to them.
+
+When dissolving a boundary, it is critical that the slave experience deep connection with you after crossing through the fear or boundary. Most slaves will follow you through a boundary crossing willingly once or twice. If you fail to prove a deep connection on the other side of the boundary, the slave will withdraw and lose respect. One of the easiest ways to lose a slave is to carelessly cross a boundary and leave her feeling disconnected. Be mindful that, when you cross a boundary, the result must be a deeper connection.
+
+
+# Principles of Mastery
+
+# Finding Your First Slave
+
+# The Cuff System

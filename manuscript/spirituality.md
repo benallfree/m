@@ -1,3 +1,5 @@
+1 -# Spirituality
+
 # A Gentle Introduction to Queraen Spirituality
 
 Querae advances the idea that existence is far more than we can perceive with our five senses. Or, put another way, that there is life beyond this physical existence.
@@ -21,3 +23,4 @@ In Querae, we are all called Seekers. Seekers of the Que or Seekers of the Rae. 
 Why, you might wonder, would one want to seek out either energy form? Why not just *be*? My answer comes from the experience of living and observation. Fundamentally, men are happiest when they provide and have a sense of mission or purpose. Women are happiest when they receive and are used, or put to their best use. This is the nature of the physical forms we take. Our bodies, or physical forms, respond best when our spirits run these energy polarities. That is the unique experience of being a dominant man or a life-creating woman; bringing forth the unmanifested and laying it at the man's feet for him to make and shape as he sees fit. In Querae, living to your fullest physical form is encouraged and ultimately leads to spiritual understanding, bonding, and ascendance. It leads to *unconditional love*, normally found only in the unmanifested.
 
 There are, of course, exceptions to the above assertion. Some men would rather receive, some women would rather provide, and some spirits feel "trapped" in the wrong body or polarity altogether. If you are one of these exceptions, feel free to switch the genders and other vocabulary to best suit your understanding. My only suggestion and encouragement is that you do choose a polarity for yourself and seek the opposite in your partners.
+
