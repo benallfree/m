@@ -2,9 +2,10 @@ changes.md
 introduction.md
 preface.md
 a-word-on-vocabulary.md
-spirituality.md
-master-basics.md
-red-cuff.md
-green-cuff.md
-blue-cuff.md
-black-cuff.md
+part1-spirituality.md
+part2-master-basics.md
+part3-red-cuff.md
+part4-green-cuff.md
+part5-blue-cuff.md
+part6-black-cuff.md
+part7-additional-resources.md

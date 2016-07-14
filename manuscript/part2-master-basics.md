@@ -1,4 +1,6 @@
+
 2 -# Mastering the Basics
+
 # You Are a Master
 
 Yours is to conquer the manifested. The physical world -- with help from your slaves.
