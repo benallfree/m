@@ -1,2 +1,8 @@
 changes.md
 introduction.md
+preface.md
+a-word-on-vocabulary.md
+you-are-a-master.md
+masters-dont-row.md
+defending-your-castle.md
+dissolving-boundaries.md
