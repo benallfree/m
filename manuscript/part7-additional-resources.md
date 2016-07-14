@@ -1,5 +1,5 @@
 
-7 -# Additional Resources
+-# Additional Resources
 
 # List of Principles
 

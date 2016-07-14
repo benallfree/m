@@ -1,5 +1,5 @@
 
-2 -# Mastering the Basics
+-# Mastering the Basics
 
 # You Are a Master
 
@@ -47,11 +47,11 @@ However, a Master's castle cannot withstand attacks from within. That is not how
 Even when your slave is right with a helpful suggestion, she is wrong to attempt to modify your command. Sometimes, modifications can be disguised as clarifying questions. For example, consider the following conversation with your naked slave:
 
 > You: slave, please go fetch today's newspaper from the driveway.
-slave: Yes, Master. Now?
-You: Yes slave, now please.
-slave: Would it please you to have me put on a robe first?
-You: No, slave. Go fetch the paper.
-slave (peeking out the door): Yes, Master. Should I wait until nobody is around?
+> slave: Yes, Master. Now?
+> You: Yes slave, now please.
+> slave: Would it please you to have me put on a robe first?
+> You: No, slave. Go fetch the paper.
+> slave (peeking out the door): Yes, Master. Should I wait until nobody is around?
 
 This is an example of an enemy inside the castle walls. The slave, perhaps well-meaning, is over-complicating the command, but it is disguised as submissive clarification. She never says no, and yet the command has been delayed. When was the first sign of trouble?
 
@@ -60,7 +60,7 @@ The first sign of trouble was in the slave's first response. When she asked *Now
 Now, consider an alternate, more subtle version:
 
 > You: slave, please go fetch today's newspaper from the driveway.
-slave: Yes, Master. *Slave puts on a robe, then walks outside and retrieves the paper.*
+> slave: Yes, Master. *Slave puts on a robe, then walks outside and retrieves the paper.*
 
 Here again, the slave has disobeyed but in a more subtle way. She improvised aspects of the command by adding to it. The Master did not say *put on your robe and go fetch the paper*. The Master said simply, *go fetch the paper*. It is your role to teach your slave to be mindful of your exact command and not add her own interpretations to it. *How unreasonable,* you might say, *that I must specify every command exactly! What an order, I can't go through with it! I want a slave who thinks, who knows my preferences, and complies in a way that she believes will please me!* Perhaps this is true, however, it is far better to teach your slave to follow commands exactly than to give license for interpretation. Interpretation leads to judgement, and judgement leads to ego and willfulness. Imagine further:
 
@@ -75,7 +75,7 @@ Therefore, I suggest the following version of the interaction:
 
 > You: slave, please go fetch today's newspaper from the driveway.
 > slave: Yes, Master. Now?
-> You: *Don't say a word; instead, go get her leash and fasten it to her collar.* Now you will crawl, my love, and fetch the paper with your mouth. I will lead you through this command. Then, you will spend the rest of your day crawling and may not rise until you are commanded. Use this time to fully appreciate the importance of following my commands without question, the first time, in the simplest way possible. Now make your Master proud and comply without another word.
+> You: *Don't say a word, yet; instead, go get her leash and fasten it to her collar.* Now you will crawl, my love, and fetch the paper with your mouth. I will lead you through this command. Then, you will spend the rest of your day crawling and may not rise until you are commanded. Use this time to fully appreciate the importance of following my commands without question, the first time, in the simplest way possible. Now make your Master proud and comply without another word.
 
 Whether the above punishment is the correct and effective measure for your slave is an exercise I leave to you. However, the point stands: the slave did not respond to the command with immediate blissful submission, and so corrective action was taken to enforce the command instead of entering into discussion with the slave. The Master made his alternative less appealing than following the original command.
 

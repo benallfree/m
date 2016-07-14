@@ -1,5 +1,5 @@
 
-3 -# Red Cuff
+-# Red Cuff
 
 # Introduction
 

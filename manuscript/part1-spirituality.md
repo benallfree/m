@@ -1,5 +1,5 @@
 
-1 -# Spirituality
+-# Spirituality
 
 # A Gentle Introduction to Queraen Spirituality
 

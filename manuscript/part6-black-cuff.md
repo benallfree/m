@@ -1,5 +1,5 @@
 
-6 -# Black Cuff
+-# Black Cuff
 
 # Training Your slave to Offer Her Life
 
