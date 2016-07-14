@@ -1,0 +1,5 @@
+# Introduction
+
+We are spiritual beings having a human experience. There is good evidence to suggest that most women used to be more ascended to the spiritual plane than most men. When I look into the modern world and the vast number of conflicts we face, I see a spiritually broken species. We must change to survive. We must return to the roots from which we came, to access our spiritual existence as it was originally designed. Only then can we ascend to our highest form of purpose. The major goal of this book is to teach you how to do that.
+
+As with all frameworks, this is *a way*, not *the way*. It's a means of approaching a higher truth. Try the suggestions set forth in this book, and use the ones that work for you. Quite famously, it has been said, "take what you like and leave the rest." I agree. And, if you don't like your new life, I will refund your old life in its entirety. 
